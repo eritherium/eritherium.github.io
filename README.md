@@ -1,5 +1,3 @@
-## Hello There!!!
-### it's me eritherium...
-#### tes!
-##### tes!!
-tes!!!
+## Hallo wawa!!👋
+
+### aku gajah ehehe
