@@ -1,3 +1,3 @@
-## Hallo wawa!!👋
+## Hallo!!👋
 
 ### aku gajah ehehe
